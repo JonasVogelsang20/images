@@ -1,0 +1,1 @@
+This is kind of a storage for images i used for my websites that I need somewhere else than just my own hard drive. I would recommend you not necessarilly looking through thm because they aren't interesting at all whatsoever. Have a beautiful Day.
